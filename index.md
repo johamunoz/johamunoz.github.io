@@ -1,4 +1,4 @@
-## Welcome to Johanna Munoz GitHub Pages
+## Welcome to Johanna Munoz GitHub Page
 
 
 
